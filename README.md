@@ -1,0 +1,1 @@
+# hakkimda-patikaodev2
